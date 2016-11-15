@@ -1,1 +1,0 @@
-# uedog.github.io
